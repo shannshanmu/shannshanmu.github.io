@@ -26,10 +26,10 @@ Manas, a Year 8 student at Reading School, is going on the Spanish football trip
 
 There have been similar trips to some of the Power to the 9s ones, such as a Sweden trip at the end of the 2019 academic year for Year 9s, who are currently in Year 10. The aim of past trips has been like the Power to the 9s trips aim – to build a greater sense of community between students. Andreas went on the trip to Sweden last year and said, “It was nice to have time away from all of the technology.” Toby, who went to Tasmania in 2019, reckons that: “Being away from home shaped me as an individual and it pushed me out of my comfort zone.” D ylan went on the trip to Sweden last year, and believes he benefited from the experience: “I think it will help build relationships between students.”
 
-![Alt text: An activity on the Sweden trip last year](/power-to-the-9s--extra-1.jpg "One of the many activities on the Sweden trip.")
+![Alt text: An activity on the Sweden trip last year](/power-to-the-9s--extra-2.jpg "One of the many activities on the Sweden trip.")
 An activity on the Sweden trip last year © Reading School
 
-![Alt text: The wonderful sights of nighttime Sweden](/power-to-the-9s--extra-1.jpg "A relaxing, scenic picture of Sweden")
+![Alt text: The wonderful sights of nighttime Sweden](/power-to-the-9s--extra-3.jpg "A relaxing, scenic picture of Sweden")
 The wonderful sights of nighttime Sweden © Reading School
 
 Mrs. Mole, as well as being the Headmaster’s Executive Assistant, went on the Sweden trip last year, and she had a great time. She said, “I hope that Power to the 9s will develop students as well-rounded young people and make the students think about others as well, in a good-natured way, instead of just themselves.”
