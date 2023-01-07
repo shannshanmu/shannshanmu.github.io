@@ -5,8 +5,6 @@ This is my blog! Feel free to poke around :)
 
 ## Posts:
 
-{MM YY} - {[Template](/template.md)}
-
 Feb 2020 - [BBC Young Reporter](/bbc-young-reporter.md)
 
 Sept 2020 - [One way I can make a difference to the world...](/one-way-difference.md)

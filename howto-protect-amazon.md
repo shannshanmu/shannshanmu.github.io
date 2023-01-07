@@ -24,20 +24,20 @@ These solutions pertain exclusively to soy plantations, but they could also be a
 To conclude, there are at least two main methods for conserving the Brazilian Amazon rainforest, with the main players in it still making profits without anywhere near as much deforestation. If both of these methods were implemented, it would satisfy the two main parties involved. The deforestation would almost nearly stop, satisfying the deforestation-free agricultural commodity consumers, and the producers as well, as there would be more consumers willing to buy their legal, sustainable products. This would save the largest and one of the crucial ecological biospheres in the world and make it more equitably useful to all the living beings involved.
 
 ## Bibliography
--Zimmer, K. (2019). Why the Amazon doesn’t really produce 20% of the world’s oxygen. https://www.nationalgeographic.com/environment/article/why-amazon-doesnt-produce-20-percent-worlds-oxygen
--Irfan, U. (2019). Brazil’s Amazon rainforest destruction is at its highest rate in more than a decade. https://www.vox.com/science-and-health/2019/11/18/20970604/amazon-rainforest-2019-brazil-burning-deforestation-bolsonaro
--Thomson, A. (2020). Biodiversity and the Amazon Rainforest. https://www.greenpeace.org/usa/biodiversity-and-the-amazon-rainforest/
--Watts, J. (2021). Amazon rainforest ‘will collapse if Bolsonaro remains president’. https://www.theguardian.com/environment/2021/jul/14/amazon-rainforest-will-collapse-if-bolsonaro-remains-president
--Toohey, D. E. (2012). Indigenous Peoples, Environmental Groups, Networks and the Political Economy of Rainforest Destruction in Brazil. http://www.jstor.org/stable/41853029
--Seddon, G. (1985). THE CONSERVATION OF RAINFOREST. http://www.jstor.org/stable/45165085
--Prance, G & 1 other. (1996). The Amazon: Nature’s laboratory, mankind’s classroom. http://www.jstor.org/stable/45139326
--Butler, R. A. (2020). Brazil revises deforestation data: Amazon rainforest loss topped 10,000 sq km in 2019. https://news.mongabay.com/2020/06/brazil-revises-deforestation-data-amazon-rainforest-loss-topped-10000-sq-km-in-2019/
--Butler, R. A. (2021). Amazon Destruction. https://rainforests.mongabay.com/amazon/amazon_destruction.html
--Anon, Anon. (2020). How important is the Amazon Rainforest for the Brazilian economy?. https://www.greenbiz.com/article/how-important-amazon-rainforest-brazilian-economy
--Anon, Anon. (N/A). Inside the Amazon. https://wwf.panda.org/discover/knowledge_hub/where_we_work/amazon/about_the_amazon/
--Guerrero, A & 1 other. (2020). Demand for meat is driving deforestation in Brazil – changing the soy industry could stop it. https://theconversation.com/demand-for-meat-is-driving-deforestation-in-brazil-changing-the-soy-industry-could-stop-it-151060
--Rausch, L. L & 10 others. (2019). Soy expansion in Brazil's Cerrado. https://conbio.onlinelibrary.wiley.com/doi/10.1111/conl.12671
--Anon, Anon. (2018). Jair Bolsonaro beyond the sound bites: What are his policies?. https://www.bbc.co.uk/news/world-latin-america-45982501
+- Zimmer, K. (2019). Why the Amazon doesn’t really produce 20% of the world’s oxygen. https://www.nationalgeographic.com/environment/article/why-amazon-doesnt-produce-20-percent-worlds-oxygen
+- Irfan, U. (2019). Brazil’s Amazon rainforest destruction is at its highest rate in more than a decade. https://www.vox.com/science-and-health/2019/11/18/20970604/amazon-rainforest-2019-brazil-burning-deforestation-bolsonaro
+- Thomson, A. (2020). Biodiversity and the Amazon Rainforest. https://www.greenpeace.org/usa/biodiversity-and-the-amazon-rainforest/
+- Watts, J. (2021). Amazon rainforest ‘will collapse if Bolsonaro remains president’. https://www.theguardian.com/environment/2021/jul/14/amazon-rainforest-will-collapse-if-bolsonaro-remains-president
+- Toohey, D. E. (2012). Indigenous Peoples, Environmental Groups, Networks and the Political Economy of Rainforest Destruction in Brazil. http://www.jstor.org/stable/41853029
+- Seddon, G. (1985). THE CONSERVATION OF RAINFOREST. http://www.jstor.org/stable/45165085
+- Prance, G & 1 other. (1996). The Amazon: Nature’s laboratory, mankind’s classroom. http://www.jstor.org/stable/45139326
+- Butler, R. A. (2020). Brazil revises deforestation data: Amazon rainforest loss topped 10,000 sq km in 2019. https://news.mongabay.com/2020/06/brazil-revises-deforestation-data-amazon-rainforest-loss-topped-10000-sq-km-in-2019/
+- Butler, R. A. (2021). Amazon Destruction. https://rainforests.mongabay.com/amazon/amazon_destruction.html
+- Anon, Anon. (2020). How important is the Amazon Rainforest for the Brazilian economy?. https://www.greenbiz.com/article/how-important-amazon-rainforest-brazilian-economy
+- Anon, Anon. (N/A). Inside the Amazon. https://wwf.panda.org/discover/knowledge_hub/where_we_work/amazon/about_the_amazon/
+- Guerrero, A & 1 other. (2020). Demand for meat is driving deforestation in Brazil – changing the soy industry could stop it. https://theconversation.com/demand-for-meat-is-driving-deforestation-in-brazil-changing-the-soy-industry-could-stop-it-151060
+- Rausch, L. L & 10 others. (2019). Soy expansion in Brazil's Cerrado. https://conbio.onlinelibrary.wiley.com/doi/10.1111/conl.12671
+- Anon, Anon. (2018). Jair Bolsonaro beyond the sound bites: What are his policies?. https://www.bbc.co.uk/news/world-latin-america-45982501
 
 
 [Click here](/index.md) to go back to the home page!
