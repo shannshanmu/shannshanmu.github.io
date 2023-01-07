@@ -13,4 +13,4 @@ Additionally, Elon Musk has bargained on the Bitcoin market with a series of cle
 
 I think Bitcoin's price will keep gradually increasing, however not to $200000 (that has been speculated over the past few months by various persons), and that it is here to stay.
 
-Click [here](/index.md) to go back to the home page!
+[Click here](/index.md) to go back to the home page!

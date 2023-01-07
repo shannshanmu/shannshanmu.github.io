@@ -28,6 +28,8 @@ Syntax highlighted code block
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
+For displaying images see [this stack overflow post!](https://stackoverflow.com/questions/41604263/how-do-i-display-local-image-in-markdown)
+
 ### Jekyll Themes
 
 Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/shannshanmu/shannshanmu.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
